@@ -1,0 +1,1 @@
+# 7-Report_StarScheme_Direct_query_AnalysisServicesSSAS_AvdW
